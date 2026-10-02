@@ -1,3 +1,3 @@
-### Hey, I'm Zach 👋
+### Yo, I'm Zach 👋
 
 Welcome to my GitHub profile.
